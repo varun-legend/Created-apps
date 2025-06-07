@@ -25,4 +25,4 @@ If inspiration strikes and I build something meant for the world, I’ll share i
 Until then, feel free to test and enjoy what’s here — just no behind-the-scenes tours 😄
 
 Thanks for stopping by,  
-**– Varun Prasath (a.k.a. varun-legend)**
+**– Varun Prasath [also known as]( The legend)**
